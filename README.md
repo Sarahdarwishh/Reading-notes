@@ -1,5 +1,3 @@
-# Reading-notes
-
 
 # **growth mindset**
 ## simple definition :  
